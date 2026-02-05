@@ -52,77 +52,91 @@ Anal sex (and sex in general) is an area that sometimes lack scientific evidence
 
 # TL;DR
 
-WARNING: This guide contains a lot of crucial information that can prevent you from harming you and others. It is highly advised to read this guide completely.
+ADVERTENCIA: Esta guía contiene mucha información crucial que puede evitar que te hagas daño a ti mismo y a otros. Se recomienda encarecidamente leer esta guía por completo.
 
-Note: If you are going to read the full guide, then it is recommended to skip this chapter. A lot of nuances are simply skipped, this chapter skips a lot of possible alternative ways and gives you the fastest yet still safe way to get into anal sex.
+Nota: Si vas a leer la guía completa, se recomienda saltarte este capítulo. Se omiten muchos matices; este capítulo pasa por alto muchas formas alternativas posibles y te brinda el camino más rápido, aunque aún seguro, para iniciarte en el sexo anal.
 
-So you are not a reader-type and want to just jump into it. Anal sex is not simple, but if you insist on skipping crucial information, then this chapter is going to contain the bare minimum. Please, if you intend to skip all other chapters, then at least don't skip this one. The following text is going to assume you are the one receiving anal sex (being penetrated).
+Entonces no eres de los que les gusta leer y solo quieres lanzarte. El sexo anal no es sencillo, pero si insistes en omitir información crucial, este capítulo contendrá lo mínimo indispensable. Por favor, si piensas saltarte todos los demás capítulos, al menos no te saltes este. El texto que sigue asumirá que tú eres quien recibe sexo anal (la persona penetrada).
 
 **Stages:**
 
-1) Start with touches: Not everyone enjoys anal sex, but a lot of people can learn to enjoy it. Touch your anus for a few days while you shower. Gently press the anus to get familiar with the sensation. Rub your finger around the anus, but don't insert fingers into your anus just yet. <u>The principle: get use to the sensation that something is touching your butt</u>.
-*Note: Enema or douching is not suitable for this stage. By doing this in the shower, you can wash any feces away. Avoid doing enemas or douching for now.*
+1) Empieza con toques: No todas las personas disfrutan del sexo anal, pero muchas pueden aprender a disfrutarlo. Toca tu ano durante algunos días mientras te duchas. Presiona suavemente el ano para familiarizarte con la sensación. Frota tu dedo alrededor del ano, pero aún no introduzcas los dedos en tu ano. <u>El principio: acostumbrarse a la sensación de que algo toca tu trasero</u>.
+*Nota: El enema o el lavado anal no son adecuados para esta etapa. Al hacerlo en la ducha, puedes lavar cualquier resto de heces. Evita hacer enemas o lavados por ahora.*
 
-2) Get a proper lube: Lube is a must, don't use soap, don't use saliva, you need lube, otherwise you will most likely injure yourself and not feel any pleasure at all. There are a lot of variables when it comes to lube, but for the sake of simplicity just get a decent water-based lube. Look for reviews in your area or online, no need to buy the best possible lube yet, almost any water-based lube will do just fine. <u>The principle: get a water-based lube, any lube you can buy at a trustworthy store will be fine for now.</u>
-*Note: If you are lost on what kind of lube to get, consider checking this [image](lube_ph.jpg) at look at some of the lubes that are marked at pH level 5 or 6.*
+2) Consigue un buen lubricante: El lubricante es indispensable; no uses jabón ni saliva; necesitas lubricante, de lo contrario probablemente te lastimarás y no sentirás ningún placer. Hay muchas variables cuando se trata de lubricantes, pero para simplificar solo consigue un lubricante a base de agua decente. Busca opiniones en tu zona o en línea; no hace falta comprar el mejor lubricante todavía, casi cualquier lubricante a base de agua servirá por ahora. <u>El principio: consigue un lubricante a base de agua; cualquiera que puedas comprar en una tienda de confianza está bien por ahora.</u>
+*Nota: Si no sabes qué tipo de lubricante conseguir, considera revisar esta [imagen](lube_ph.jpg) y fíjate en algunos lubricantes marcados con un pH de 5 o 6.*
 
-3) Cleansing, the first: Don't use an enema or a douche yet. Plan your diet for few day(s) before engaging into anal play. Avoid spicey food, avoid junk food, avoid processed food. Eat fiber-rich meals for a couple of days before engaging into anal play. On the day you are planning to do anal play, simply go to the toilet and empty your colon as usual. <u>The principle: have a good diet for a few days prior to anal play, go sit on the toilet, don't use an enema or douche.</u>
+3) Limpieza (opcional), primera fase: Aún no uses un enema o un lavado anal. Planifica tu dieta durante algunos días antes de comenzar el juego anal. Evita los alimentos picantes, evita la comida chatarra, evita la comida procesada. Consume comidas ricas en fibra durante un par de días antes de la actividad anal. El día en que planees el juego anal, simplemente ve al baño y vacía tu colon como de costumbre. <u>El principio: lleva una buena dieta durante algunos días antes del juego anal, siéntate en el baño; no uses un enema ni un lavado.</u>
 
-4) Inserting a finger (or two): After a few days of touching your anus in the shower, you can proceed to using fingers. Apply a decent amount of lube on one of your fingers. Start to insert the finger into your anus, but don't push it in with force. Try getting in only the tip of your finger and then squeeze your anus in such a way that you can feel your finger being slightly squeezed. Hold the squeeze for couple of seconds and then relax the anus. As soon as you relax your anus, you should notice that the finger slides in almost by itself. Repeat the squeezing procedure until you have inserted your finger into the anus. Hold your finger inside your anus for a while, then try moving the finger inside you, wiggle it around, make small thrusts. Try two fingers. <u>The principle: Get used to the sensation that something is inside your anus.</u>
+4) Introducir un dedo (o dos): Después de unos días de tocar tu ano en la ducha, puedes pasar a usar los dedos. Aplica una cantidad generosa de lubricante en uno de tus dedos. Comienza a introducir el dedo en tu ano, pero no lo empujes con fuerza. Intenta introducir solo la punta del dedo y luego aprieta el ano de manera que sientas que el dedo es ligeramente comprimido. Mantén la contracción durante un par de segundos y luego relaja el ano. En cuanto relajes el ano, notarás que el dedo se desliza casi por sí solo. Repite el procedimiento de apretar hasta que hayas introducido el dedo en el ano. Mantén el dedo dentro por un rato, luego intenta moverlo dentro de ti, gíralo, haz pequeños empujes. Prueba con dos dedos. <u>El principio: acostumbrarse a la sensación de tener algo dentro del ano.</u>
 
-5) Get a good dildo: Get a small sized (start with less than 3cm in diameter at the top) dildo that is made out of a good material (silicone, stainless steel, glass; avoid buying other materials until you are more knowledgeable). Butt plugs can be used, but it is recommended to start with a dildo. Realistic dildos are fine, solid dildos are also fine, beaded dildos are fine, it doesn't really matter what shape it is as long as it is small. Don't use household items, the risk of injury or infection is too high. <u>The principle: get a decent dildo, a small one.</u>
-*Note: Silicone dildos are usually the go-to choice, though you might want to use a stainless steel dildo or a glass dildo at first. There are a lot of downsides when using hard sex toys, but silicone sex toys tend to leave a distinct smell when used anally.*
+5) Consigue un buen dildo: Consigue un dildo de tamaño pequeño (empieza con menos de 3 cm de diámetro en la punta) que esté hecho de un buen material (silicona, acero inoxidable, vidrio; evita comprar otros materiales hasta que tengas más conocimientos). Se pueden usar plugs anales, pero se recomienda comenzar con un dildo. Los dildos realistas están bien; los dildos macizos también; los dildos con cuentas también; no importa realmente la forma mientras sea pequeño. No uses objetos domésticos; el riesgo de lesiones o infecciones es muy alto. <u>El principio: consigue un dildo decente, uno pequeño.</u>
 
-6) Anal play with a dildo, the first: Have a good diet, go to the toilet and clean out your colon before engaging into anal play, don't use an enema or douches. It is best to do this in the shower. Apply lube on your fingers, slowly insert one finger into your anus and use the squeezing procedure if needed. Wiggle the finger around, move the finger to the sides to stretch your anus gently. Insert another finger with lube and repeat. Consider trying tree fingers, don't forget to add lube. When you feel ready, apply lube to your dildo and slowly insert it into your anus, use the squeezing procedure if needed. No need to insert the dildo deeply inside, a few centimeters inside is just fine for now. Let the dildo sit into your rectum for a while. Try moving the dildo to sides, try making small thrusts. <u>The principle: use your fingers to warmup your anal muscles, use lube, slowly insert your dildo into the rectum and progress to making small thrusts.</u>
-*Note: If you are a beginner, then never try to insert a dildo without warming up. Use your fingers and the squeeze method to prepare yourself for larger objects.*
+*Nota: Los dildos de silicona suelen ser la opción preferida, aunque es posible que quieras usar un dildo de acero inoxidable o de vidrio al principio. Hay muchas desventajas al usar juguetes sexuales duros, pero los juguetes de silicona tienden a dejar un olor distintivo cuando se usan analmente.*
 
-7) Listen to your body: Anal is **NOT** supposed to hurt. It is supposed to be pleasant. If you experience pain or even discomfort, then it means your body is trying to signal you that something is not right. Listen to these sensations, they are crucial. Whenever you feel pain, it means stop and try something else. Don't wait the pain to go away, otherwise you might need to visit a hospital. Blood means immediate stop, no questions asked. Dark blood means you seriously need to see a doctor, **NOW**. <u>The principle: Pain means you are doing something wrong, stop it.</u>
-*Note: The internet is full of bad advice. One of the worst advice you can find is "you will get used to the pain". Avoid such advice and avoid people who advocate such reckless behavior.*
+6) Juego anal con un dildo, primera vez: Lleva una buena dieta, ve al baño y limpia tu colon antes de empezar el juego anal; no uses enema ni lavados. Es mejor hacerlo en la ducha. Aplica lubricante en tus dedos, introduce lentamente un dedo en tu ano y usa el procedimiento de apretar si es necesario. Mueve el dedo alrededor, desplázalo a los lados para estirar suavemente el ano. Introduce otro dedo con lubricante y repite. Considera probar tres dedos; no olvides añadir lubricante. Cuando te sientas listo, aplica lubricante al dildo e insértalo lentamente en el ano; usa el procedimiento de apretar si es necesario. No hay necesidad de insertarlo profundamente; por ahora, unos pocos centímetros bastan. Deja que el dildo se asiente en tu recto durante un rato. Intenta mover el dildo hacia los lados; intenta hacer pequeños empujes. <u>El principio: utiliza tus dedos para calentar los músculos anales, usa lubricante, introduce lentamente el dildo en el recto y progresa a hacer pequeños empujes.</u>
 
-8) Stimulate yourself with anal: As usual, have a good diet, go to the toilet before engaging into anal play, don't use an enema or douches. It is best to do this in the shower. Repeat the the steps described in stage 7, but while thrusting the dildo you should slowly start stimulating yourself in traditional ways (penis/clitoris/vagina). Try to orgasm if you can. Repeat this for a few sessions until you start to find anal pleasurable. Don't go fast or hard with anal stimulation, don't go too deep, it will not feel as pleasurable as traditional masturbation yet. <u>The principle: incorporate anal play into your traditional masturbation ways, keep it gentle.</u>
-*Note: Slowly incorporating anal play is very important. You need to train your body to associate anal play with pleasure, this takes time and a lot of practice. Don't rush it. It is fine to barely move the dildo while you orgasm in more traditional ways.*
+*Nota: Si eres principiante, nunca intentes insertar un dildo sin calentar. Utiliza tus dedos y el método de apretar para prepararte para objetos más grandes.*
 
-9) Douching, maybe: Only when you have started to find anal pleasurable, it is **OPTIONAL** to use water or weak saline solution to clean yourself before anal play. Do **NOT** do an enema at this stage. Enema uses a lot of water, you want to find a very small douche and use very small amounts of liquid (no more than 100ml, yes, that small amount). Before douching, go to the toilet and empty your colon. Fill up the douche with no more than 100ml of liquid. Add lube to the nozzle of your douche and insert it into your anus. Squeeze the douche half-way through, let the liquid sit in your rectum for a while, consider jumping and shaking your body a little. Sit on the toilet, let everything out. Repeat the steps with the leftover liquid in the douche. Go to the toilet about 30 minutes later to remove any residue. <u>The principle: don't use a lot liquid, squeeze and let it out.</u>
-*Note: Enemas or using more than 100ml of liquid is not for beginners. Focus on a better diet than more liquid. Large amounts of liquids can cause nausea and turn a few minute douching procedure into a multiple hour long discomforting procedure.*
+7) Escucha a tu cuerpo: El sexo anal **NO** debe doler. Debe ser placentero. Si experimentas dolor o incluso incomodidad, significa que tu cuerpo está tratando de señalarte que algo no está bien. Escucha estas sensaciones; son cruciales. Cuando sientas dolor, significa que debes parar y probar otra cosa. No esperes a que el dolor desaparezca; de lo contrario, podrías tener que ir al hospital. La presencia de sangre significa que debes parar inmediatamente, sin preguntas. La sangre oscura significa que necesitas ver a un médico, **AHORA**. <u>El principio: el dolor significa que estás haciendo algo mal, detente.</u>
 
-10) More anal: At this point, you should be able to warmup your anal muscles and incorporate anal play into your regular masturbation sessions. During your anal play sessions you might still have the urge to go sit on the toilet. This is a natural reflex that does go away with practice. Continue to practice with your dildo while you masturbate, slowly focus more on anal play on each next session. Repeat this for many times until you don't feel the urge to push out the dildo. <u>The principle: more anal, learn to ignore the urge to push out.</u>
-*Note: If you are worried that you will make a mess, then consider using a towel underneath you. Anal can be messy, get used to it.*
+*Nota: Internet está lleno de malos consejos. Uno de los peores es “te acostumbrarás al dolor”. Evita ese consejo y evita a las personas que recomiendan comportamientos tan imprudentes.*
 
-11) Anal sex with a partner: Only now you are ready. Either use a douche or not, up to you. Warmup your anal muscles as usual, use your fingers and your dildo, don't skip the warmup. Always use lube. Instruct your partner to start slow and instruct your partner to find the perfect speed, depth and position until you feel comfortable. Incorporate penile/clitoral stimulation while you are being penetrated to help you find anal sex more pleasurable. Don't think about the possibility of making a mess. <u>The principle: warmup, **WARMUP**, go slow and gentle, enjoy yourself.</u>
+8) Estimúlate con el juego anal: Como siempre, lleva una buena dieta, ve al baño antes del juego anal; no uses enema ni lavados. Es mejor hacerlo en la ducha. Repite los pasos descritos en la etapa 7, pero mientras empujas el dildo debes empezar poco a poco a estimularte de maneras tradicionales (pene/clítoris/vagina). Trata de alcanzar el orgasmo si puedes. Repite esto durante algunas sesiones hasta que empieces a encontrar placer en el anal. No vayas rápido ni fuerte con la estimulación anal; no vayas demasiado profundo; aún no se sentirá tan placentero como la masturbación tradicional. <u>El principio: incorpora el juego anal en tu masturbación tradicional, mantén la suavidad.</u>
 
-**WARNING:** Never switch from anal sex to vaginal sex in the same session. There is a very high risk of causing an infection. You can switch from vaginal sex to anal sex, but not vice versa.
+*Nota: Incorporar lentamente el juego anal es muy importante. Necesitas entrenar tu cuerpo para asociar el juego anal con el placer; esto requiere tiempo y mucha práctica. No te apresures. Está bien mover apenas el dildo mientras alcanzas el orgasmo por medios más tradicionales.*
 
-*TIP:* Pee after anal sex (both giver and receiver) to minimize risk of infection.
+9) Ducha anal, quizá: Solo cuando hayas empezado a encontrar el anal placentero es **OPCIONAL** usar agua o una solución salina débil para limpiarte antes del juego anal. **NO** hagas un enema en esta etapa. Un enema utiliza mucha agua; lo ideal es encontrar una ducha anal muy pequeña y usar cantidades muy pequeñas de líquido (no más de 100 ml, sí, esa pequeña cantidad). Antes de la ducha anal, ve al baño y vacía tu colon. Llena la ducha anal con no más de 100 ml de líquido. Añade lubricante a la boquilla de la ducha e introdúcela en tu ano. Aprieta la ducha hasta la mitad; deja que el líquido repose en tu recto un rato; considera saltar y sacudir tu cuerpo un poco. Siéntate en el baño y deja salir todo. Repite los pasos con el líquido que quede en la ducha. Ve al baño unos 30 minutos después para eliminar cualquier residuo. <u>El principio: no utilices mucho líquido; aprieta y deja salir.</u>
 
-**FAQ**:
-1. I sticked a dildo into my anus then started to thrust it very fast, but nothing happened, why?
-\- Anal sex cannot be approached the same way as males approach masturbation. It simply does not work that way.
-2. But where is the anal orgasm?
-\- Orgasming from anal sex is going to require you to read the appropriate chapter
-3. Whats next?
-\- Explore! Try getting different types of sex toys, try larger size sex toys, but you should really read the full guide
-4. Why is there no stage about relaxing?
-\- There is, multiple stages are dedicated to it, this chapter gives more specific advice than simply "relax"
-5. I heard butt plugs are great for anal sex, is it true?
-\- They can be a great way to prepare yourself before anal sex, though a dildo is going to be more suitable
-6. I did everything and I still don't find anal pleasurable, why?
-\- Try increasing your sexual arousal (a lot) before starting your anal play sessions, but it might also mean that anal is simply not for you
-7. I saw poop, should I stop?
-\- Just use a napkin and clean it off, anal is messy, deal with it
+*Nota: Los enemas o usar más de 100 ml de líquido no es para principiantes. Concéntrate en una mejor alimentación en lugar de usar más líquido. Grandes cantidades de líquido pueden causar náuseas y convertir un procedimiento de ducha que debería durar unos minutos en varias horas de malestar.*
 
-# Reasons to have anal sex
+10) Más anal: En este punto, ya deberías ser capaz de calentar tus músculos anales e incorporar el juego anal en tus sesiones habituales de masturbación. Durante tus sesiones de juego anal todavía podrías tener ganas de ir al baño. Este es un reflejo natural que desaparece con la práctica. Continúa practicando con tu dildo mientras te masturbas; poco a poco centra más la atención en el juego anal en cada sesión. Repite esto muchas veces hasta que ya no sientas la necesidad de expulsar el dildo. <u>El principio: más anal; aprende a ignorar el impulso de expulsar.</u>
 
-To many it may be hard to understand why would you want to have anal sex. According to a [study](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4379393/) done in 2014, women engage into anal sex due to various reasons, including to avoid vaginal intercourse (period, pregnancy), to pleasure her partner, desire for own pleasure, prostitution, under influence of drugs and didn't know she can refuse anal sex. While some of those reasons we should not discuss, the other reasons are quite beneficial to women, specifically to gain pleasure and to avoid vaginal intercourse.
+*Nota: Si te preocupa ensuciar, considera usar una toalla debajo de ti. El anal puede ser sucio; acostúmbrate.*
 
-While there have not been a widespread study that specifically researches the success rate of reaching orgasm through anal sex (the National Survey of Sexual Health and Behavior did not have sufficient participants), there do seem to be a noticeable amount of reports from individuals that they can reach an orgasm through anal sex. The results of this survey are reviewed in an article that females that engaged into anal sex reached orgasms a lot more often than with any other type of sex, you can read more about this in the article [here](https://metro.co.uk/2015/08/25/this-is-the-best-way-to-give-a-woman-an-orgasm-apparently-5359272/)
+11) Sexo anal con una pareja: Solo ahora estás listo. Utiliza una ducha anal o no; depende de ti. Calienta tus músculos anales como siempre; usa tus dedos y tu dildo; no te saltes el calentamiento. Usa siempre lubricante. Indica a tu pareja que empiece despacio y que busque la velocidad, profundidad y posición perfectas hasta que te sientas cómodo. Incorpora estimulación del pene/clítoris mientras estás siendo penetrado para ayudarte a encontrar el sexo anal más placentero. No pienses en la posibilidad de ensuciar. <u>El principio: calentar, **CALENTAR**, ir lento y suave, disfrutar.</u>
 
-An article tries to example how women that engage into anal sex are more likely to reach any type of an orgasm, you can read about this [here](https://slate.com/technology/2010/10/why-do-women-who-have-anal-sex-get-more-orgasms.amp).
+**ADVERTENCIA:** Nunca cambies del sexo anal al sexo vaginal en la misma sesión sin limpiar antes. Hay un riesgo de causar una infección. Puedes cambiar del sexo vaginal al sexo anal sin limpiar, pero no al revés.
 
-Another article describes how similar are the pelvic floor muscle contractions (a muscle that surrounds nerves that are connected to your genitalia) during anal and vaginal orgasms, you can view the article [here](https://lioness.io/blogs/sex-guides/anal-orgasms-vs-vaginal-orgasms-double-penetration).
+*CONSEJO:* Orina después del sexo anal (tanto quien da como quien recibe) para minimizar el riesgo de infección.
 
-You will most likely encounter people that are completely against anal sex, a lot of them might be self critical and lack mindfulness that is going to come as an obstacle to reach orgasms for both men and women, but you do need to remember that sex is a mutual agreement and requires consent from both (or more) parties. If you do convince your partner to try it, then there are a lot of interesting sensations awaiting for the (if done properly), as long as they are able to put aside the unhelpful thoughts.
+**Preguntas frecuentes (FAQ):**
 
-Through this guide we will discover some of the very interesting features our anal sex related organs have during anal sex and will try to explain why anal sex probably is going to be a stronger orgasmic experience.
+1. Metí un dildo en mi ano y empecé a empujarlo muy rápido, pero no pasó nada. ¿Por qué?
+- El sexo anal no se puede abordar de la misma manera en que los hombres practican la masturbación. Simplemente no funciona así.
+
+2. ¿Pero dónde está el orgasmo anal?
+- Tener un orgasmo a través del sexo anal requerirá que leas el capítulo correspondiente.
+
+3. ¿Qué sigue?
+- ¡Explora! Prueba distintos tipos de juguetes sexuales, prueba juguetes de mayor tamaño, pero realmente deberías leer la guía completa.
+
+4. ¿Por qué no hay una etapa sobre relajarse?
+- Sí, la hay; varias etapas están dedicadas a ello. Este capítulo da consejos más específicos que simplemente “relájate”.
+
+5. He oído que los plugs anales son estupendos para el sexo anal. ¿Es cierto?
+- Pueden ser una buena forma de prepararte antes del sexo anal, aunque un dildo será más adecuado.
+
+6. Hice todo esto y aún no encuentro el anal placentero. ¿Por qué?
+- Intenta aumentar mucho tu excitación sexual antes de comenzar tus sesiones de juego anal.
+
+7. Vi heces. ¿Debería parar?
+- Solo usa una servilleta y límpialo; el anal es sucio, acéptalo.
+
+# Razones para tener sexo anal
+
+Para muchas personas puede ser difícil entender por qué querrían tener sexo anal. Según un [estudio](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4379393/) realizado en 2014, las mujeres practican sexo anal por diversas razones, entre ellas evitar el coito vaginal (durante la menstruación o el embarazo), complacer a su pareja, deseo de placer propio, prostitución, estar bajo la influencia de drogas y no saber que podían rechazar el sexo anal. Aunque algunas de esas razones no deberíamos discutirlas, las otras son bastante beneficiosas para las mujeres, concretamente para obtener placer y evitar el coito vaginal.
+
+Aunque no se han realizado estudios amplios que investiguen específicamente la tasa de éxito de alcanzar el orgasmo a través del sexo anal (la Encuesta Nacional sobre Salud Sexual y Conducta no tuvo participantes suficientes), sí parece haber una cantidad considerable de testimonios de personas que pueden alcanzar un orgasmo mediante el sexo anal. Los resultados de esta encuesta se revisan en un artículo que afirma que las mujeres que practican sexo anal alcanzan orgasmos mucho más a menudo que con cualquier otro tipo de sexo; puedes leer más sobre ello en el artículo [aquí](https://metro.co.uk/2015/08/25/this-is-the-best-way-to-give-a-woman-an-orgasm-apparently-5359272/).
+
+Otro artículo intenta explicar cómo las mujeres que practican sexo anal tienen más probabilidades de alcanzar cualquier tipo de orgasmo; puedes leer sobre ello [aquí](https://slate.com/technology/2010/10/why-do-women-who-have-anal-sex-get-more-orgasms.amp).
+
+Otro artículo describe cuán similares son las contracciones del músculo del suelo pélvico (un músculo que rodea los nervios conectados a tu genital) durante los orgasmos anales y vaginales; puedes ver el artículo [aquí](https://lioness.io/blogs/sex-guides/anal-orgasms-vs-vaginal-orgasms-double-penetration).
+
+
+Es probable que te encuentres con personas que están completamente en contra del sexo anal; muchas de ellas pueden ser autocríticas y carecer de atención plena, lo cual va a ser un obstáculo para alcanzar orgasmos tanto para hombres como para mujeres, pero debes recordar que el sexo es un acuerdo mutuo y requiere el consentimiento de ambas partes (o más). Si logras convencer a tu pareja de probarlo, entonces hay muchas sensaciones interesantes esperándoles (si se hace correctamente), siempre que puedan dejar de lado los pensamientos poco útiles.
+
+A lo largo de esta guía descubriremos algunas de las características muy interesantes que tienen nuestros órganos relacionados con el sexo anal durante el sexo anal y trataremos de explicar por qué el sexo anal probablemente sea una experiencia orgásmica más intensa.
 
 # Safety
 
@@ -1401,5 +1415,6 @@ When laying on your side, you can arch your back backwards, this can make a very
 Rip the condom package at the corner, don't rip the package in the middle, you have a risk to break the condom by ripping the package through the center.
 
 You can use a back massager as a vibrator when placed on a sex toy, though some back massagers can be very powerful and might even be irritating.
+
 
 
